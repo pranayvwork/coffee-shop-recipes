@@ -17,7 +17,7 @@
 
 ### Step 2
 
-- Stir in optional sweetener.
+- Stir in optional sweetener. Be careful no to spill.
 
 ### Step 3
 
