@@ -6,7 +6,7 @@
 
 - 2 Tbsp homemade Hazelnut Syrup
 - 8 oz Mocha Flavored Coffee
-- 4 oz full cream milk
+- 4 oz cow milk
 - 1/4 cup whipped cream
 - 1 Tbsp chocolate syrup + 1 tsp for garnish
 
@@ -18,7 +18,7 @@
 
 ### Step 2
 
-- Froth full cream milk and pour over the coffee.
+- Froth cow milk and pour over the coffee.
 
 ### Step 3
 
