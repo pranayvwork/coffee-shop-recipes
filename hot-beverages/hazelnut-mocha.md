@@ -1,12 +1,12 @@
 # Hazelnut Mocha
 
-## Description: Rich chocolate and nutty flavors in every sip
+## Description: Richness of raosted chocolate beans and crazy nutty flavors in every sip
 
 ## Ingredients
 
 - 2 Tbsp homemade Hazelnut Syrup
 - 8 oz Mocha Flavored Coffee
-- 4 oz whole milk
+- 4 oz full cream milk
 - 1/4 cup whipped cream
 - 1 Tbsp chocolate syrup + 1 tsp for garnish
 
@@ -18,7 +18,7 @@
 
 ### Step 2
 
-- Froth milk and pour over the coffee.
+- Froth full cream milk and pour over the coffee.
 
 ### Step 3
 
